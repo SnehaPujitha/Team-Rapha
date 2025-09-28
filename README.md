@@ -1,1 +1,0 @@
-https://hacxlerate.bytexl.com/
